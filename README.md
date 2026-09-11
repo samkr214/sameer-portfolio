@@ -141,7 +141,7 @@ Interested in:
 
 📧 **Email:** [sameerkr5062@gmail.com](mailto:sameerkr5062.com)
 🔗 **GitHub:** https://github.com/samkr214
-💼 **LinkedIn:** https://linkedin.com/in/yourusername
+💼 **LinkedIn:** https://linkedin.com/in/sameer-kumar-9573b5397/
 
 ---
 
